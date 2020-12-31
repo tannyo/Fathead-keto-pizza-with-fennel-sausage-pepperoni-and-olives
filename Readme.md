@@ -62,4 +62,6 @@ It’s very important to use whole milk (highest fat content you can get) mozzar
 
 When applying the pizza sauce it is important to not use too much. If you use too much pizza sauce the toppings will slide off the cooked pizza. I suggest using a fork to apply the pizza sauce so that you can see the crust in between the ridges.
 
+![](A638A4C9-87A1-4CFA-85EE-7C2CE0C9544E.jpeg)
+
 End
